@@ -1,0 +1,1 @@
+Easy-lazy way Linux
